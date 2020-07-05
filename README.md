@@ -1,2 +1,2 @@
 # myaim.github.io
-my homepage is class
+my homepage is good
